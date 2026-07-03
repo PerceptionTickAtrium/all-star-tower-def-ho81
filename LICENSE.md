@@ -1,4 +1,4 @@
-#  
+#  all star tower defense stealth Scripts is the best all star tower defense Script, featuring no clip and speed. Safe and powerful for all your needs.
 
 
 
